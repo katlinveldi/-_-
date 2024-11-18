@@ -1,3 +1,3 @@
 
 сложно сосредоточится
-repo-https://github.com/katlinveldi/-_-)
+repo-https://github.com/katlinveldi/-_-
